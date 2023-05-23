@@ -9,8 +9,6 @@ At the same time, we are committed to empowering women beyond the digital realm.
  Images:
  
 ![photo_2023-05-07_08-41-26](https://user-images.githubusercontent.com/103508561/236655621-3ff904b8-583b-4916-ab7d-b875d9cdef88.jpg)
-
-![photo_2023-05-07_08-44-20](https://user-images.githubusercontent.com/103508561/236655740-dc49809c-72ca-47f4-84d5-f3fc490c0676.jpg)
 ![photo_2023-05-07_08-44-24](https://user-images.githubusercontent.com/103508561/236655741-98e79b95-4908-45cc-8d9d-43304c92909d.jpg)
 
 ![photo_2023-05-07_08-44-43](https://user-images.githubusercontent.com/103508561/236655743-3c89e87b-ad3c-4933-a449-39bf864c4a36.jpg)
