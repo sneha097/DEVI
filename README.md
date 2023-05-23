@@ -7,9 +7,12 @@ At the same time, we are committed to empowering women beyond the digital realm.
  
  
  Images:
- 
+ ![photo_2023-05-24_03-08-45](https://github.com/sneha097/DEVI/assets/103508561/97c8f160-b5c9-4bff-85fa-9c7272f0f91f)
+
 ![photo_2023-05-07_08-41-26](https://user-images.githubusercontent.com/103508561/236655621-3ff904b8-583b-4916-ab7d-b875d9cdef88.jpg)
 ![photo_2023-05-07_08-44-24](https://user-images.githubusercontent.com/103508561/236655741-98e79b95-4908-45cc-8d9d-43304c92909d.jpg)
+![photo_2023-05-24_01-37-21](https://github.com/sneha097/DEVI/assets/103508561/84ba75dc-2a1e-420e-824b-01e6bbcd7cf5)
+![photo_2023-05-24_01-37-29](https://github.com/sneha097/DEVI/assets/103508561/6c82f4e6-1c72-4a87-b077-004e9e55959a)
 
 ![photo_2023-05-07_08-44-43](https://user-images.githubusercontent.com/103508561/236655743-3c89e87b-ad3c-4933-a449-39bf864c4a36.jpg)
 ![photo_2023-05-07_08-44-45](https://user-images.githubusercontent.com/103508561/236655745-22fd0149-36eb-410c-8cde-bd9519341934.jpg)
